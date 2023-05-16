@@ -1,1 +1,1 @@
-🎵️📄️🗄️ Altenrative page for the SeansAudioDB blog
+🎵️📄️🗄️ Alternative page for the SeansAudioDB blog
